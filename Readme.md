@@ -1,1 +1,1 @@
-Buat WALLPAPER YA PANTEK
+![Result](wallpapaer.png)
